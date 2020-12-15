@@ -1,0 +1,1 @@
+aa kurwa! nie dla psa kielbasa HAHA sam se napisz a nie  kod kradniesz zlodzieju jebany 
